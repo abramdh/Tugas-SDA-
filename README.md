@@ -1,2 +1,2 @@
 Semangat!!!
-Tetap Memperjuangkan
+Jangan Pernah Menyerah
